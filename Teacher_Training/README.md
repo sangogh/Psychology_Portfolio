@@ -1,1 +1,1 @@
-asd
+Designed a module pertaining to sensitisation and awareness about Grief in children/adolescents for school teachers. Holistic encompassment of various dimensions of grief as well as learning outcomes post delivery of the module have been incorporated. 
