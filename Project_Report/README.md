@@ -1,1 +1,1 @@
-
+This is a consolidation of all the projects undertaken as a school counsellor. Pedagogical frameworks have been corroborated for every aspect along with the theoretical framework that guided the decision-making process.
