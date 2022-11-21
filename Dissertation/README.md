@@ -1,1 +1,1 @@
-
+A quantitative-research undertaken in order to establish and gauge the relationship between Grit, Self-control, General strategies for learning and academic achievement in Emerging adults. SPPS was employed in order to pilot the data analysis procedure. The results established a positive correlation amongst the aforementioned variables. 
